@@ -1,4 +1,4 @@
-# Willkommen. 
+# Willkommen.
 
 Du begegnest: "Völlerei"
 
